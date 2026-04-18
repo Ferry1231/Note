@@ -1,3 +1,3 @@
 # Note
 
-**Ferry在USTC（等更多学校的求学笔记）**
+**Ferry在USTC（等更多学校）的求学笔记**
